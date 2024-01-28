@@ -38,7 +38,7 @@
 
 ![](https://cdn.beekka.com/blogimg/asset/202401/bg2024011403.webp)
 
-真正的精华在化石馆（下图），那是一个大棚，里面都是恐龙化石。
+真正·的精华在化石馆（下图），那是一个大棚，里面都是恐龙化石。
 
 ![](https://cdn.beekka.com/blogimg/asset/202401/bg2024011404.webp)
 
